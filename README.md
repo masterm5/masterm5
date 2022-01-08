@@ -1,7 +1,5 @@
-my name is @masterm5
-I’m interested in rdr2 
-I’m currently learning python , i'm on the second year
-i not in search for collabs now
+dima idiot tupoi
+
 
 
 <!---
